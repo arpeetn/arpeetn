@@ -5,6 +5,6 @@
 - 💞️ Junior Computer Science Student at Clemson University
 
 - 📫 Find my resume at: www.linkedin.com/in/arpeet-naik
-- 📫 How to reach me is by email at arpeetn@clemson.edu
+- 📫 How to reach me is by email at arpeetnaik@gmail.com
 
 
